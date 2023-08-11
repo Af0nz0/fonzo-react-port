@@ -41,7 +41,7 @@ I have experience with the following languages:
 If you'd like to get in touch, feel free to reach out via email or connect with me on social media.
 
 - Email: alfonsotorres758@gmail.com
-- LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com/in/alfonso-torres-gonzalez-51b0a2248/ )
+- LinkedIn: [My Profile](https://www.linkedin.com/in/alfonso-torres-gonzalez-51b0a2248/ )
 
 
 ---
